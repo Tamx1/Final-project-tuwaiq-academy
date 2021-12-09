@@ -1,1 +1,1 @@
-# Final-project-tuwaiq-academy
+# Final project tuwaiq academy
